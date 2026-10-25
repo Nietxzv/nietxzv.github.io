@@ -1,2 +1,0 @@
-# nietxzv.github.io
-Portfolio
